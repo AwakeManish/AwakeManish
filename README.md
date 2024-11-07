@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍🎓IITP CSE'25<br>🏠Kuraoli, U.P.
+👨‍🎓IITP CSE'25<br>🏠Kuraoli, Uttar Pradesh, India.
 
 
 ## 🌐 Socials:
