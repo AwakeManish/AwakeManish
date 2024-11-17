@@ -1,6 +1,6 @@
-#👨‍🎓IITP CSE'25
+# 👨‍🎓IITP CSE'25
 <br>
-#🏠Kuraoli, Uttar Pradesh, India.
+🏠Kuraoli, Uttar Pradesh, India.
 
 
 ## 🌐 Socials:
